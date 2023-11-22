@@ -1,1 +1,0 @@
-# greenpioneerconsulting.github.io
